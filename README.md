@@ -1,0 +1,2 @@
+# teolord.github.io
+něchápem
